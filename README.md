@@ -1,1 +1,2 @@
-/t Miguel Ángel Cruz Olmedo 27-2723-2025 
+Lista de intregrantes del grupo:
+Miguel Ángel Cruz Olmedo 27-2723-2025 
